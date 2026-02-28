@@ -1,6 +1,4 @@
 <div align="center">
-
-<img align="center" width="fit" height="fit" src="https://64.media.tumblr.com/e82dc06591be1abbf671f641c7770166/3f1880f78271be0c-20/s540x810/35d523475fb13067e1d348334395549efa2cd67f.pnj">
   
 <img align="center" width="fit" height="fit" src="https://64.media.tumblr.com/f38d0be6714713beca69434314981ed9/468910ad9720ee14-27/s540x810/2da969455c140d0df40b07413a7232a62a8ff60e.pnj">
 
@@ -28,7 +26,7 @@
 
 <div align="center">
 
-<img align="center" width="1000" height="100" alt="image" src="https://64.media.tumblr.com/2af215c4a466f3965aa55c906a3ca142/bc151d5e71482285-bc/s400x600/9e895e6df4065778194e3f410d604441a5c2cc17.gifv" />
+<img align="center" width="1000" height="100" alt="image" src="https://64.media.tumblr.com/28c9642ea91f2647174c825dbc41bacd/c3b14e17e06f27f5-ed/s100x200/b7f1e8db2f16b30920dd3e53f76fdd218f1f8558.gifv" />
 
 <h3 align="center"
 
@@ -81,7 +79,7 @@ ABOUT ME
   <p> I dont mind people interacting with me at all. its just that I dont really know how to communicate, I have been struggling to communicate with people since forever, even if you tryna to gossip with me. I like listening quite alot and also very dry, sorry. If we have the same humor or smth, there's a high chance that i might go on a talkative mode. I also tend to say the most brainrotting shit ever, for ex; labubu, cry for me, fart, and etc. I do ALOT of typos, to the point people dont even know what im saying lmfao. I am really freaky, if you are uncomfortable with that, please let me know, I dont like making people uncomfortable. I use alot of cuss words, let me know if you're uncomfortable with that. I'm also fine with people swearing or slurs, as long as i dont get violated or offended. I often comes out very mean, but i ensure you that im also nice too. I'm only rude if pissed off or smth. </p>
     <p> I vent alot, but i dont like with people who comfort me. Unless i am really comfortable or ok with it. do NOT vent to me if you want good advice, although i often lost the will to comfort too lol </p>
 <p> I strictly dont have a dni list, so you are free to int with me. Just dont be an asshole ok? Fictionkin doubles are fti </p>
-  <img width="300" height="300" alt="image" src="https://media1.tenor.com/m/6XTcgSyBFPYAAAAd/centaura-corvus.gif" />
+  <img width="300" height="300" alt="image" src="https://64.media.tumblr.com/01ca66d8c176b674aa707ac70f184eb9/c1975b938af6d6c1-d7/s100x200/306b7fc039374eedc235dd0a5ed2dce8c2276e62.gifv" />
   </div>
 </details>
 
