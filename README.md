@@ -1,5 +1,8 @@
 <div align="center">
-<img align="center" width="300" height="300" src="https://64.media.tumblr.com/5d3e2857cfa0b91880f8c295da225a9e/c97a9fcb79b5521f-f7/s400x600/982b0158594317a67dffd03dd5b8e86d8e666126.pnj">
+
+<img align="center" width="fit" height="fit" src="https://64.media.tumblr.com/e82dc06591be1abbf671f641c7770166/3f1880f78271be0c-20/s540x810/35d523475fb13067e1d348334395549efa2cd67f.pnj">
+  
+<img align="center" width="fit" height="fit" src="https://64.media.tumblr.com/f38d0be6714713beca69434314981ed9/468910ad9720ee14-27/s540x810/2da969455c140d0df40b07413a7232a62a8ff60e.pnj">
 
   ![](https://komarev.com/ghpvc/?username=ttamwi&color=6e1c14&amp;label=kisses)
   
@@ -92,7 +95,7 @@ ABOUT ME
 
 <div align="center">
 
-<img align="center" width="2000" height="200" alt="image" src="https://64.media.tumblr.com/2e5bf284d5fbee443726ec5b92776f37/32803adb0cea0e94-3f/s540x810/197588702e9b49a3a1d851a504a66ab5fdeac2fd.jpg" />
+<img align="center" width="2000" height="200" alt="image" src="https://64.media.tumblr.com/376fa3a809414df93f9e38ef572e8027/6b4dbd627e370819-68/s540x810/8f0899f949da8ecf1dcf7bd96f78c042ccb3d4f8.pnj" />
 
 ⠀
 <details>
